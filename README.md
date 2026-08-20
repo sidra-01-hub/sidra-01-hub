@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sidra-01-hub
 - 👀 I’m interested in ...exploring..and acknowledging new things
-- 🌱 I’m currently learning ...Data science (engineering_2nd year)
+- 🌱 I’m currently learning ...Data science (engineering_3rd year)
 - 💞️ I’m looking to collaborate on ... new projects which enhance my coding skills
 - 📫 How to reach me ...just drop down a message for what reason you wanted to reach me !! simple
 - 😄 Pronouns: ...she/Her
